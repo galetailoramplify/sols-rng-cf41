@@ -1,4 +1,4 @@
-#  
+#  automatic Script for sol's rng offers the most advanced sol's rng Script, with auto-sell and speed. Perfect for dominating any match.
 
 
 
